@@ -1,1 +1,0 @@
-Her skal bildefilene være.
